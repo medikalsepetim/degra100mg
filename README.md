@@ -33,3 +33,5 @@ Degra 100 mg genellikle iyi tolere edilir, ancak bazı kullanıcılarda **hafif 
 ❌ **Nitrat içeren ilaçlarla birlikte alınmamalıdır**, ciddi tansiyon düşüklüğüne yol açabilir.  
 
 Degra 100 mg, **sertleşme sorununa etkili bir çözüm sunarken, doktor önerisiyle kullanılması gereken bir ilaçtır**. Kullanıcı yorumları ve fiyat bilgisi için **eczaneleri ve online platformları takip edebilirsiniz**.
+
+Daha fazla bilgi için: [Degra 100 mg Resmi Web Sitesi](https://www.degra100mg.org/)
